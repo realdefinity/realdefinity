@@ -1,3 +1,3 @@
 - im definity
-- Owner of Comet unblocked & CometWare
+- Owner of Comet
 - LUA, HTML, CSS, JAVA, PYTHON.
