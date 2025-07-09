@@ -1,3 +1,3 @@
-- im definity
 - Owner of Comet
-- LUA, HTML, CSS, JAVA, PYTHON.
+- OG roblox exploiter (back in the prime syn x days)
+- LUAU, HTML, CSS, JAVA, PYTHON.
